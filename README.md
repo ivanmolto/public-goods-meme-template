@@ -1,1 +1,1 @@
-# public-goods-meme-template
+# PUBLIC GOODS MEME TEMPLATE
